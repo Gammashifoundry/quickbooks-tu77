@@ -1,4 +1,4 @@
-# 
+# elite QuickBooks for PC addons is the best QuickBooks for PC addons with payment-processing and project-accounting. Safe, reliable, and optimized for maximum performance.
 
 
 
